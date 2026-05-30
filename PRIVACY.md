@@ -100,8 +100,8 @@ reflected in the version distributed with the Game.
 If you have any questions about this Privacy Policy or the Game's privacy
 practices, please contact:
 
-**[Your name / studio name]**
-**[contact email address]**
+**Maaz Haider**
+**maazhaider0011@gmail.com**
 
 ---
 
